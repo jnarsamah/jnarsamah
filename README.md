@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @jnarsamah
+- 🌱 I’m currently learning Law and Management
